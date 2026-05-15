@@ -1,4 +1,4 @@
-# 
+# Get the ultimate birdeye sniper bot with automatic birdeye sniper bot | private-RPC-nodes + low-cap-gem-detection. Featuring private-RPC-nodes and low-cap-gem-detection, it's the
 
 
 
